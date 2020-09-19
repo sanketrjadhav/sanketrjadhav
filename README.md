@@ -5,4 +5,4 @@ Here are some ideas to get you started:
 
 - 🌱 I’m currently learning Deep Learning models.
 - 💬 Ask me about Machine Learning, Natural Language Processing.
-- 📫 How to reach me: [Gmail](jadhav.sanket74@gmail.com),[LinkedIn](https://www.linkedin.com/in/sanket-jadhav-3206b4114)
+- 📫 How to reach me: Contact me on this mail jadhav.sanket74@gmail.com or just check my [LinkedIn](https://www.linkedin.com/in/sanket-jadhav-3206b4114) profile. 
